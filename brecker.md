@@ -10,3 +10,9 @@ tenor saxophone
 soprano saxophone
 flute
 
+Sideman gigs
+
+Joanne Brackeen
+Herbie Hancock
+Chick Corea
+
