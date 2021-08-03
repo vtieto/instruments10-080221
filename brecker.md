@@ -16,3 +16,9 @@ Joanne Brackeen
 Herbie Hancock
 Chick Corea
 
+Albums:
+
+Don't Try This at Home
+Now you see it, now you don't
+Two blocks from the edge
+
